@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Iamavi13
 - 👀 I’m interested in gaming, coading, travelling.
-- 🌱 I’m currently learning evrything
+- 🌱 Learning....
 - 📫 How to reach me .. on Insta its @i_am_avi_13 
 
 <!---
